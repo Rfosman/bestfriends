@@ -1,2 +1,2 @@
 # bestfriends
-Millors amics de mai
+Millors amics de sempre!!
